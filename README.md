@@ -1,1 +1,1 @@
-# ChardZhard.github.io is weird
+# ChardZhard.github.io
